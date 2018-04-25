@@ -1,3 +1,0 @@
-ncldduels
-
-dkdl hohihihi
